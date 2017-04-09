@@ -7,7 +7,7 @@
 
 ![](https://raw.githubusercontent.com/chrislarrycarl/Refresh-Logos/master/Refresh-C/Refresh-C.png?token=AGt2qw8PLTBOc6S_UojsKAidHZmhvbBVks5Y89v1wA%3D%3D)The final Refresh logo, circa 2010-2014.### Helios Calendar A
 
-![](https://raw.githubusercontent.com/chrislarrycarl/Refresh-Logos/master/Helios-Calendar-A/Helios-Calendar-A.jpg?token=AGt2q7oDYGUcH_GlXOZ5tXu-n_NNgGczks5Y89u5wA%3D%3D)The first official Helios Calendar logo, circa 2007.### Helios Calendar B
+![](https://raw.githubusercontent.com/chrislarrycarl/Refresh-Logos/master/Helios-Calendar-A/Helios-Calendar-A.jpg?token=AGt2q7oDYGUcH_GlXOZ5tXu-n_NNgGczks5Y89u5wA%3D%3D)The first official Helios Calendar logo, circa 2007-2010.### Helios Calendar B
 
 ![](https://raw.githubusercontent.com/chrislarrycarl/Refresh-Logos/master/Helios-Calendar-B/Helios-Calendar-B.png?token=AGt2q0ZE-bJnjXjwuZxfCYTmmpsLhGOQks5Y89v9wA%3D%3D)The final Helios Calendar logo, circa 2010-2014### Selene Directory
 
